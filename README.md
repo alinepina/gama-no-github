@@ -1,1 +1,1 @@
-Este curso é incrível!
+Este curso Ã© incrÃ­vel!
